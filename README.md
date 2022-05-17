@@ -1,0 +1,2 @@
+- 👋 Hi! I'm NE1009. Glad to see you!
+- 🧑‍🎓 A student and just a noob.
